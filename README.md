@@ -1,5 +1,5 @@
 # Open Text Collections #12
-## The material culture of the Teop people on Bougainville: Texts on plants, house building, canoes and fishing 
+## Teop texts
 
 This collection features 32 texts from the Teop language, spoken on the island of Bougainville in Papua New Guinea. 
 
